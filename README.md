@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **swethamuraleetharan0609@gmail.com**
 
-- 😂 Fun fact **My code works 50% of the time. I have no idea about the other 50%**
+- 😂 Fun fact - **My code works 50% of the time. I have no idea about the other 50%**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
